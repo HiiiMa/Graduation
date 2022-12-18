@@ -1,2 +1,0 @@
-# Graduation
-Straight Outta Compton
